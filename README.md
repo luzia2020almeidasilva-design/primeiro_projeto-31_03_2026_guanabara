@@ -1,0 +1,2 @@
+# primeiro_projeto-31_03_2026_guanabara
+Curso_em_Video_Git_Github_31_03_2026@
